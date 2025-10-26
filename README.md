@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **sutharjigar348@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1VuUS7ZSIvJPTqQEuEm27wehm5jjHA9qA/view?usp=drive_link](https://drive.google.com/file/d/1VuUS7ZSIvJPTqQEuEm27wehm5jjHA9qA/view?usp=drive_link)
+- 📄 Know about my experiences [resume]([https://drive.google.com/file/d/1vjD3Ne9nooLh_ZS4wnv-rWq9xneyoEFl/view?usp=sharing])
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
